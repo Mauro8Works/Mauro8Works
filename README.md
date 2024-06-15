@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Mauro8Works Aquino 😁
+## Bem-vindo(a) ao perfil do Mauro Aquino 😁
 
  <div>
    <a href="https://github.com/Mauro8Works">
